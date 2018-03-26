@@ -1,2 +1,3 @@
 # Hello-World
 taetra.wordpress.com
+A ganacakra (Sanskrit: गणचक्र gaṇacakra "gathering circle"; Tibetan: ཚོགས་ཀྱི་འཁོར་ལོ།, Wylie: tshogs kyi 'khor lo) is also known as tsog, ganapuja, cakrapuja or ganacakrapuja. It is a generic term for various tantric assemblies or feasts, in which practitioners meet to chant mantra, enact mudra, make votive offerings and practice various tantric rituals as part of a sādhanā, or spiritual practice. The ganachakra often comprises a sacramental meal and festivities such as dancing; the feast generally consisting of materials that were considered forbidden or taboo in medieval India, where the tantric movement arose. As a tantric practice, forms of gaṇacakra are practiced today in Hinduism, Bön and Vajrayāna Buddhism.
